@@ -1,1 +1,2 @@
 Nathaniel DeShazer
+deshazen@oregonstate.edu
